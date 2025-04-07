@@ -1,3 +1,2 @@
 Our personal website... 
 
-![Fortnite-2024_09_11-13_08_50](https://github.com/user-attachments/assets/21a3a158-516a-416c-baf0-ea7e15054be6)
